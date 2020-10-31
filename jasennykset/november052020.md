@@ -8,7 +8,8 @@
 
 
 ## Puolueettomia keskusteluissamme?
-* [Lainaus vartiotornista](https://wol.jw.org/fi/wol/d/r16/lp-fi/2016288#h=18:0-20:0)
+* Lainaus vartiotornista. [Huhtikuu 2016](https://wol.jw.org/fi/wol/d/r16/lp-fi/2016288#h=18:0-20:0)
+* Lainaus päivän tekstistä. [Perjantai, 25. syyskuuta 2020](https://wol.jw.org/fi/wol/d/r16/lp-fi/1102020008#h=82)
 
 ## Puolueettomia ajatuksissamme?
 1. Meille välitetyt uutiset ovat usein yksipuolisia ja mielipiteiden sävyttämiä. 
@@ -18,7 +19,6 @@
     * puolueettomampi uutislähde?
 
 ## Loppusanat
-1. Varovaisia keskusteluissamme
-2. Viisasta rajoittaa sellaisten medialähteiden käyttöä, jotka edistävät poliittista ohjelmaa.
-3. Verrata kuulemaamme siihen mitä luemme raamatusta [terveitä sanoja](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/55/1#study=discover&v=55:1:13).
+1. Varovaisuus keskusteluissamme.
+2. Verrata kuulemaamme [terveisiin sanoihin](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/55/1#study=discover&v=55:1:13), joita luemme raamatusta.
 
