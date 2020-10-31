@@ -1,5 +1,5 @@
 # Miten voimme pysyä poliittisesti puolueettomina keskusteluissamme ja ajatuksissamme?
-5 marraskuuta 2020
+[Työkirja 2.–8. marraskuuta 2020](https://wol.jw.org/fi/wol/d/r16/lp-fi/202020402)
 
 
 ## Johdanto
