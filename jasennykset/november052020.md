@@ -4,7 +4,7 @@
 
 ## Johdanto
 * Elämme jännittäviä aikoja politiikassa sekä koti- että ulkomailla.
-* [Kuninkaamme Jeesuksen sanat](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/40/10#study=discover&v=40:10:16-40:10:17)
+* [Kuninkaamme Jeesuksen ohje](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/40/10#study=discover&v=40:10:16-40:10:17)
 * [Kesykyyhky](https://fi.wikipedia.org/wiki/Kesykyyhky)
 
 
@@ -18,6 +18,6 @@
 
 ## Loppusanat
 1. Muistetaan olla varovaisia tämän pahan maailman keskellä.
-2. Yritetään siksi olla viattomia kuin kyyhkyset myös poliittisissa kysymyksissa. Muistetaan että Jeesus ratsastaa tällä hetkellä valkoisella hevosella ja hänellä on Kuninkaan kruunu päässään.
+2. Yritetään olla viattomia kuin kyyhkyset myös poliittisissa kysymyksissä. Muistetaan että Jeesus ratsastaa tällä hetkellä valkoisella hevosella ja hänellä on Kuninkaan kruunu päässään.
 3. Verrata kuulemaamme [terveisiin sanoihin](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/55/1#study=discover&v=55:1:13), joita luemme raamatusta.
 
