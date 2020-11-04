@@ -3,8 +3,7 @@
 
 
 ## Johdanto
-* Elämme jännittäviä aikoja politiikassa sekä koti- että ulkomailla.
-* [Kuninkaamme Jeesuksen ohje](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/40/10#study=discover&v=40:10:16-40:10:17)
+* [Jeesuksen ohje](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/40/10#study=discover&v=40:10:16-40:10:17)
 * [Kesykyyhky](https://fi.wikipedia.org/wiki/Kesykyyhky)
 
 
