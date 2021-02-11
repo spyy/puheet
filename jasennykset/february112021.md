@@ -6,7 +6,7 @@
 Israelin heimot eli sukukunnat polveutuivat patriarkka Jaakobin pojista. Jaakobilla, jonka nimi muutettiin Israeliksi, oli 12 poikaa: Ruuben, Simeon, Leevi, Juuda, Dan, Naftali, Gad, Asser, Isaskar, Sebulon, Joosef ja Benjamin.
 [Vartiotorni 2008](https://wol.jw.org/fi/wol/d/r16/lp-fi/2008488#h=7:0-12:0).
 
-Israelin heimot tulivat Jaakobin pojista. Joosef ja Leevi olivat poikkeuksia.
+Mutta Joosef ja Leevi ovat poikkeuksia, kun puhutaaan 12:sta heimosta.
 
 
 ## Leeviläisille ei osuutta luvatusta maasta
