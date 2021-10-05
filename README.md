@@ -8,6 +8,7 @@ Kokoelma puheiden jäsennyksiä
 * [Miksi Raamatussa puhutaan Israelin 12 heimosta, vaikka heimoja oli todellisuudessa 13?](jasennykset/february112021.md)
 * [Mitä eroa on oikeanlaisella ja vääränlaisella ylpeydellä?](jasennykset/april012021.md)
 * [Vältä negatiivista puhetta ja sellaisen kuuntelemista.](jasennykset/june032021.md)
+* [Mitä voimme oppia liitosta, jonka Joosua teki gibeonilaisten kanssa?](jasennykset/october072021.md)
 
 
 
