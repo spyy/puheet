@@ -9,12 +9,13 @@
 
 ## Joosuan tekemä liitto
 Oletko joskus tehnyt huonon sopimuksen, joka on saattanut harmittaa pitkäänkin.
-Itse tein kauan sitten laina sopimuksen.
+* Itse tein kauan sitten laina sopimuksen.
 * Silloin koko kansa alkoi nurista päämiehiä vastaan. [Joos 9.](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/6/9#study=discover)
 * Jehova oli mukana Joosuan pelastus operaatioossa. [Joos 10.](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/6/10#study=discover)
+* Joosua noudatti sopimusta, "Hän pelasti heidät israelilaisten käsistä, eivätkä nämä surmanneet heitä".
 
-## Daavidin päivinä
-* 400 vuotta myöhemmin Saul kuninkaana.
+## 400 vuotta myöhemmin
+* Daavid kuninkaana.
 * Jehova aiheutti 3 vuotisen nälänhädän. [2 Sam 21.](https://wol.jw.org/fi/wol/b/r16/lp-fi/nwtsty/10/21#study=discover)
 
 
