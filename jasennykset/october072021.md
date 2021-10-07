@@ -3,7 +3,7 @@
 
 
 ## Liitto sana
-* Sanan merkitys [it-2 88.](https://wol.jw.org/fi/wol/d/r16/lp-fi/1200001054#h=2:0-3:0)
+* "Kahden tai useamman persoonan välinen sopimus siitä, että jotakin tehdään tai jätetään tekemättä." [it-2 88.](https://wol.jw.org/fi/wol/d/r16/lp-fi/1200001054#h=2:0-3:0)
 * Raamatussa mainittuja liittoja [it-2 93 kpl 3.](https://wol.jw.org/fi/wol/d/r16/lp-fi/1200001054#h=36:0-37:0)
 * Joonatanin ja Daavidin välinen liitto, [1. Sam 20:15.](https://www.jw.org/fi/kirjasto/raamattu/nwt/sis%C3%A4llys/1-samuelin-kirja/20)
 
