@@ -9,6 +9,7 @@ Kokoelma puheiden jäsennyksiä
 * [Mitä eroa on oikeanlaisella ja vääränlaisella ylpeydellä?](jasennykset/april012021.md)
 * [Vältä negatiivista puhetta ja sellaisen kuuntelemista.](jasennykset/june032021.md)
 * [Mitä voimme oppia liitosta, jonka Joosua teki gibeonilaisten kanssa?](jasennykset/october072021.md)
+* [Jeesus ei ole kaikkivaltias Jumala](jasennykset/october222026.md)
 
 
 
