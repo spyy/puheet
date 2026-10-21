@@ -9,6 +9,11 @@
 
 ## Miksi teema, kaikkivaltias Jumala?
 * Kristus eli Messias on "Voimakas Jumala", [Jes. 6:9](https://wol.jw.org/fi/wol/dx/r16/lp-fi/1001070127/17951)
-* Sana kaikkivaltias ilmenee monta kertaa raamatussa mutta vain pari kertaa Uudessa Testamentissa. Kaikkivaltias Jumala, mutta Jobissa pelkästään kaikkivaltias.
-* Ensimmäinen esiintymä, Jehova sanoi Aabrahamille "Minä olen Kaikkivaltias Jumala". [1. Mo. 17:1](https://wol.jw.org/fi/wol/dx/r16/lp-fi/1001070105/398).  
-* Hebrean sana joka on käännetty kaikkivaltiaaksi on eri kuin sana jota käytettiin Messiaan yhteydessä.
+* Hebreankielinen sana kaikkivaltias ilmenee 48 kertaa raamatussa, 7 kertaa muodossa Jumala Kaikkivaltias. 
+* Jobin kirjassa Hebreankielinen sana 31 yksi kertaa.
+* Kreikkalainen sana kaikkaltias esiintyy 10 kertaa niistä 9 ilmestyskirjassa.
+* Ensimmäinen esiintymä, Jehova sanoi Aabrahamille "Minä olen Kaikkivaltias Jumala". [1. Mo. 17:1](https://wol.jw.org/fi/wol/dx/r16/lp-fi/1001070105/398).
+
+## Jeesuksen yhteydessä kaikkivaltias sanaa ei ole käytetty  
+* Messias profetiassa Voimakas Jumala on eri sana.
+* Ilmestyskirjassa sana yhdistetään aina Jehovaan.
