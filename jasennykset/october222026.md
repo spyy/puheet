@@ -15,5 +15,5 @@
 * Ensimmäinen esiintymä, Jehova sanoi Aabrahamille "Minä olen Kaikkivaltias Jumala". [1. Mo. 17:1](https://wol.jw.org/fi/wol/dx/r16/lp-fi/1001070105/398).
 
 ## Jeesuksen yhteydessä kaikkivaltias sanaa ei ole käytetty  
-* Messias profetiassa Voimakas Jumala on eri sana.
+* Messias profetiassa "Voimakas Jumala" on eri sana.
 * Ilmestyskirjassa sana yhdistetään aina Jehovaan.
